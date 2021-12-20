@@ -1,2 +1,1 @@
 - 👋 Siema jestem access
-- 👀 Developer z fivem forum 
